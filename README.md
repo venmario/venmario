@@ -1,3 +1,3 @@
-# Halo semua! 
+# Hello Everyonee! 
 
-Perkenalkan nama saya **VenansiusMario**.\
+Welcome to my **Portfolio**.\
